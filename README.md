@@ -30,7 +30,7 @@ This list is continuously evolving, so keep checking back!
 
 I am currently based in **Richmond, Victora**. Let me know if you're in the area, and [let's grab a drink!](https://calendly.com/jessemillmanpb)! 🍻☕
 
-Previously, I've lived in:
+Previously, I've worked from:
 
 * 🏄‍♂️ [Perth, WA](https://goo.gl/maps/b4G343o6fNx)
 * 🗽 [Brooklyn, NY](https://goo.gl/maps/gAsYqUrpemm)
