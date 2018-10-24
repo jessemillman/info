@@ -86,4 +86,4 @@ I would be delighted to speak at your [meetup / event / conference], and I am de
 
 * I _will not_ speak at a conference or meetup that does not have a Code of Conduct.
 * I _will not_ accept payment for any speaking event, workshop, or leadership engagement.
-> If you would like to have me come speak at your event, please donate all suggested speaker fees to either [AIME](https://www.aimementoring.com/), or [youthfocus](https://youthfocus.com.au/).
+> If you would like to have me come speak at your event, please donate all suggested speaker fees to either [Bowel Cancer Australia](https://www.bowelcanceraustralia.org/), [youthfocus](https://youthfocus.com.au/), or [AIME](https://www.aimementoring.com/).
