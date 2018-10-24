@@ -45,15 +45,12 @@ Previously, I've worked from:
 
 I am available via **text message**, **email**, and [Twitter](https://www.twitter.com/jessemillman) at most times. I generally respond to all of the above within 5 minutes of receipt, if urgent. Always feel free to text me if you need something and I have given you my number, otherwise send a tweet. 
 
-My email response times are extremely right-skewed, and look a bit like this (x-axis = days):
-
-
 **********
 
 ## `Philosophy`
 
 ### 🔥 Dont burn out.
-Most of the people i've met who are at the top of their game, their greatest fear is that next year they wont be. That they'll say something, or do something, or make a decision that will be so unpopular that they'll loses their gig or someone will surpass them. Dont have that fear. Your life isn't tied in to Moores Law; Take a holiday, finish that book, and dont let life pass you by from the peripherals of your laptop screen. 
+Most of the people i've met who are at the top of their game, their greatest fear is that next year they wont be. That they'll say something, or do something, or make a decision that will be so unpopular that they'll lose their gig or someone will surpass them. Dont have that fear. Your life isn't tied in to Moores Law; Take a holiday, finish that book, and dont let life pass you by from the peripherals of your laptop screen. 
 
 ### 📊 More data, less ego.
 We live in a very philosophically divided time. The only way to win is by bringing data to opinion fights; and making *every* decision data-driven.
