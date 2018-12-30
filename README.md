@@ -1,6 +1,3 @@
-
-# ️🙋‍♂️ _Hi, new friend! Great to meet you._ 
-
 Chances are, I've either directed you here, or you've been to one of my talks: in either case, welcome! Take a look around, read through my principles (listed below 👇), and [let me know if you have any questions](mailto:jesse@jessemillman.com.au). 
 
 Looking forward to working with you!
