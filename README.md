@@ -8,7 +8,7 @@ Looking forward to working with you!
 
 ### ⌚ Hours
 
-* I prefer to _work remotely_. My ideal work week would have _2 - 3 days in the office_, and _2 - 3 days working from home_, or a coworking space.
+* I prefer to _work remotely_. My ideal work week would have _2 - 3 days in the office_, and _2 - 3 days working from home_, or a _coworking space_.
 
 * Speaking of coworking spaces: **let me know** if you'd like to explore a new one, or if you have recommendations! I will spend at least a couple hours in one in each city I travel to. Some favorites:
 
@@ -25,10 +25,11 @@ This list is continuously evolving, so keep checking back!
 
 ### 🗺 Location
 
-I am currently based in **Brooklyn, New York**. Let me know if you're in the area, and [let's grab a drink!](https://calendly.com/jessemillmanpb)! 🍻☕
+I am currently based in **Melbourne, Australia**. Let me know if you're in the area, and [let's grab a drink!](https://calendly.com/jessemillmanpb)! 🍻☕
 
 Previously, I've worked from:
 
+* 🌉 [San Francisco, CA](https://goo.gl/maps/siEibpLGJxVqBngo9)
 * ☕ [Melbourne, VIC](https://goo.gl/maps/E514msToyU72)
 * 🏄‍♂️ [Perth, WA](https://goo.gl/maps/b4G343o6fNx)
 * 🗽 [Brooklyn, NY](https://goo.gl/maps/gAsYqUrpemm)
